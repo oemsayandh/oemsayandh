@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently on the process of getting a bachelors on cs & engineering<br>i am on hunt for finding and making the projects that common but know one knows that can be project 
+I'm currently on the process of getting a bachelors on cs & engineering<br>going with the flow</br>
 
 
 ## 🌐 Socials:
